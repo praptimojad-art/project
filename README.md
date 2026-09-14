@@ -1,2 +1,2 @@
 new project this project is created from local  system
-created by prapti  mojad
+created by prapti  mojad . bye 
